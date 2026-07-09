@@ -4,9 +4,8 @@ At High Peak Digital we strive to help small businesses create world class custo
 
 Reach out to the team! 
 
-Stephen Collet: Co-Founder & Director of Marketing
-
+Stephen Collet: Co-Founder & Director of Marketing                                                                                                                
 Contact Information: colletstephen22@gmail.com
 
-Justin Billeci: Co-Founder & Lead Developer
+Justin Billeci: Co-Founder & Lead Developer                                                                                                                       
 Contact Information: justinbilleci15@gmail.com
